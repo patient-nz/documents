@@ -26,10 +26,8 @@ utensils offences](https://www.police.govt.nz/sites/default/files/publications/d
 
 [OIA request](https://fyi.org.nz/request/21324-guidelines-for-medicinal-cannabis)
 
-[Acknowledgement of OIA by David Kirby Detective Inspector National Criminal
-Investigation Group New Zealand Police](https://fyi.org.nz/request/21324/response/80717/attach/3/Harris%20JA%20IR%2001%2
+[Acknowledgement of OIA by David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police](https://fyi.org.nz/request/21324/response/80717/attach/3/Harris%20JA%20IR%2001%2
 022%2037540%20signed%20response.pdf)
 
-[Final response from David Kirby Detective Inspector National Criminal Investigation
-Group New Zealand Police regarding OIA](https://fyi.org.nz/request/21324/response/81509/attach/4/Harris%20JA%20IR%2001%2
+[Final response from David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police regarding OIA](https://fyi.org.nz/request/21324/response/81509/attach/4/Harris%20JA%20IR%2001%2
 023%20449%20Response.pdf)
