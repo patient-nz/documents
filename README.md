@@ -18,16 +18,13 @@ https://www.legislation.govt.nz/act/public/1990/0108/latest/DLM223191.html
 
 [Drugs - Police Manual chapter](https://www.police.govt.nz/about-us/publication/drugs-police-manual-chapter)
 
-[Part 14 - Medical Cannabis](https://www.police.govt.nz/sites/default/files/publications/drugs-part-14-medicinal-canna
-bis-280622.pdf)
+[Part 14 - Medical Cannabis](https://www.police.govt.nz/sites/default/files/publications/drugs-part-14-medicinal-cannabis-280622.pdf)
 
 [Part 15 - Police discretion with possession/use of controlled drugs and/or possession of
 utensils offences](https://www.police.govt.nz/sites/default/files/publications/drugs-part-15-police-discretionwith-possession-use-of-controlled-drugs-280622.pdf)
 
 [OIA request](https://fyi.org.nz/request/21324-guidelines-for-medicinal-cannabis)
 
-[Acknowledgement of OIA by David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police](https://fyi.org.nz/request/21324/response/80717/attach/3/Harris%20JA%20IR%2001%2
-022%2037540%20signed%20response.pdf)
+[Acknowledgement of OIA by David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police](https://fyi.org.nz/request/21324/response/80717/attach/3/Harris%20JA%20IR%2001%2022%2037540%20signed%20response.pdf)
 
-[Final response from David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police regarding OIA](https://fyi.org.nz/request/21324/response/81509/attach/4/Harris%20JA%20IR%2001%2
-023%20449%20Response.pdf)
+[Final response from David Kirby Detective Inspector National Criminal Investigation Group New Zealand Police regarding OIA](https://fyi.org.nz/request/21324/response/81509/attach/4/Harris%20JA%20IR%2001%2023%20449%20Response.pdf)
